@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/650d01ea-2ff0-454a-8a9c-e5625ed672f3)# Spotify Premium APK 9.0.26.108 (Última Versión 2025) Descarga Gratis La Para Android
+# Spotify Premium APK 9.0.26.108 (Última Versión 2025) Descarga Gratis La Para Android
 
 ## ¿Qué es Spotify Premium APK?
 
